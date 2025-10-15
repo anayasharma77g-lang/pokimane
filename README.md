@@ -1,2 +1,2 @@
 # pokimane
-hi click here for more
+hi click here https://clipitx.com/pokimane for more
